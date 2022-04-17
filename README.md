@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Lolol-sama
+- 👀 I’m interested in coding and drawing and reading
+- 🌱 I’m currently learning python ✨
+- and just Nothing ✨✨
